@@ -17,6 +17,12 @@ I'm Mariah! , a student at Brigham Young University-Idaho interested in Psycholo
 - Proficient in: Microsoft Office and Teams. I also am well associated with using zoom 
 - Skills: I would say I'm creative. I like to try new things. I can be a leader or work well in a team. I'm driven to obtain good grades and I'm not afraid of a challenge. I love to help in any wat that I can. I'm detail-oriented. 
 
+## Projects
+
+Assistant in Special Education classsroom
+I had the wonderful opportunity to spend 45 minutes every day in the special education classroom at my local middle school during my senior year of high school. I was able to work with a variety of students with many different needs. I helped them with reading and math. It was a great way for me to learn that everyone communicates and does things differently. Our differences are what makes us valuable in the work force. 
+
+
 ## Let's Connect!
 
 - Here is my https://www.linkedin.com/in/mariah-senn-4a0933151/ profile
